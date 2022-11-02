@@ -8,9 +8,7 @@
 
 ![4](/pictures/4.JPG)
 
-![5](/pictures/5.JPG)
-
-![6](/pictures/6.JPG)
+![20](/pictures/20.JPG)
 
 ![7](/pictures/7.JPG)
 
